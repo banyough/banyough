@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @banyough
 - 👀 I’m interested in literally everything that I can think of
-- 🌱 I’m currently learning how to crochet and also currently taking CS50!
+- 🌱 I’m currently learning how to crochet and also currently taking CS50x!
 - 💞️ I’m looking to collaborate on not sure yet ¯\_(ツ)_/¯
 - 📫 How to reach me ( ͡~ ͜ʖ ͡°)
 
